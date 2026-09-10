@@ -1,1 +1,1 @@
-# Hi I'm mindLiyor1998 👋
+Hi I'm mindLiyor1998 👋
